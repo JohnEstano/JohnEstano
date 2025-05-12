@@ -1,4 +1,4 @@
-## Sup (._.)
+## Sup, call me whatvr I am not looking forward to work with you anyway.
 
 It's quite intriguing how we find purpose in doing something just to show off. **I am one of those people.**
 
