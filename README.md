@@ -1,6 +1,4 @@
-## Sup, weewooweeewooweee
-
-It's quite intriguing how we find purpose in doing something just to show off. **I am one of those people.**
+## Sup, weewooweeewoweee**
 
 <!--
 **JohnEstano/JohnEstano** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
