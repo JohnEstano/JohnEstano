@@ -1,5 +1,4 @@
-# 💫 About Me:
-I am working on projects that wows. Exploring new stuff and learning every single day. Stagnation is my biggest adversary.
+Hello there, let's connect!
 
 
 <picture>
